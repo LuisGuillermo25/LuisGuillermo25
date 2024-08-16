@@ -39,7 +39,7 @@ Me encanta conectar con otros desarrolladores y estudiantes apasionados por la t
 ---
 
 ### 📫 Conecta conmigo:
-- **Correo:** lui
+- **Correo:**
 
 
 <!---
